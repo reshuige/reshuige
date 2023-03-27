@@ -1,3 +1,6 @@
+# 主页地址
+- [热水哥](http://reshuige.com)
+
 ## 联系方式 
 
 - **热水哥暂用业务号微信:** `reshuige666`
@@ -6,6 +9,10 @@
 ### bilibili关注一下
 
 - [bilibili关注一下](https://space.bilibili.com/347250422)
+
+### 华润管理工具
+
+- [华润管理工具](http://reshuige.com/hr.html)
 
 ## 赚友交流Q群：885438809
 
