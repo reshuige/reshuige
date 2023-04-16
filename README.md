@@ -10,9 +10,9 @@
 
 - [bilibili关注一下](https://space.bilibili.com/347250422)
 
-### 华润管理工具
+### 业务大全
 
-- [华润管理工具](http://reshuige.com/hr.html)
+- [业务大全](https://www.zuuu.net/links/8143AFB1)
 
 ## 赚友交流Q群：885438809
 
