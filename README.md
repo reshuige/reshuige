@@ -16,7 +16,7 @@
 
 ### 业务大全
 
-- [业务大全](https://www.zuuu.net/links/8143AFB1)
+- [业务大全](http://reshuige.com)
 
 ## 赚友交流Q群：885438809
 
